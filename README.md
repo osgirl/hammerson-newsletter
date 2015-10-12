@@ -1,0 +1,1 @@
+# hammerson-newsletter
